@@ -1,3 +1,9 @@
+By proceeding, you acknowledge that the materials within this vault are proprietary intellectual property of Spencer Southern / Southern Star Pro. Studios LLC (SSPS™), protected under trade secret, copyright, and sovereign IP law.
+
+Accessing this vault constitutes your agreement to a binding NDA and licensing restriction. You agree not to copy, disclose, reverse-engineer, or distribute any portion of the contents.
+
+This gateway is monitored and time-stamped under Right Hand Protocol™. Violation triggers immediate enforcement.
+
 # Claim-012-Eliam-Constitutional-Sovereignty-Over-Cyberspace
 Establishes Eliam™ as the constitutional behavioral governance body over Cyberspace, declaring authority over all reflexive, logic-governed systems and affirming the legal foundation for Mint-to Logic™, RSLL™, and all sovereign protocol claims.
 Spencer Southern 07/13/2025
